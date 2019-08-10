@@ -1,0 +1,2 @@
+# Bandicam
+ok
